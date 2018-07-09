@@ -1,2 +1,1 @@
-# kudasaiminnasan
-MASS ALEXA CHECK
+
