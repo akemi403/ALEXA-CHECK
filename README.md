@@ -1,1 +1,1 @@
-
+pasti ngerti lahhh
